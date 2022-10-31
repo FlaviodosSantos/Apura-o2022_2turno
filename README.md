@@ -1,0 +1,1 @@
+# ApuracaoPresidente2022_2turno
